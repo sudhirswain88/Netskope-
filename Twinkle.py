@@ -5,7 +5,7 @@ Like a diamond in the sky.
 
 When the blazing sun is gone,
 When he nothing shines upon,
-Then you show your little light,
+Then you show your little light,hakjdhajdhakjhskwhdiuhxahihck
 Twinkle, twinkle, all the night.
 
 Then the traveler in the dark
